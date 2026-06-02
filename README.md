@@ -10,4 +10,4 @@ Stay Tuned.
 
 .
 
-First thing I'm going todo is take a 5 year vacation. Relax a bit. :)
+First thing I'm going todo is take a 5 year vacation. Relax a bit, I've been studying for so long now ... :)
