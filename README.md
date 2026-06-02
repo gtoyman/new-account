@@ -7,3 +7,7 @@ The account sprokkel78 is now locked. I can't use it anymore since I removed my 
 I will continue here.
 
 Stay Tuned.
+
+.
+
+First thing I'm going todo is take a 5 year vacation. Relax a bit. :)
